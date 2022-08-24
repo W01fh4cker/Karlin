@@ -7,4 +7,4 @@
 2. **开发不易，您的每一个`star`和`fork`都是我们前进的动力！**
 3. 项目将在九月份上线。
 4. `W01fSec`交流群：
-![](https://s2.loli.net/2022/08/14/drCpNavAcEyuxlY.jpg)
+![微信交流群二维码](https://s2.loli.net/2022/08/24/6oqsBkpYLZw7SRC.jpg)
